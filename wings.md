@@ -11,9 +11,10 @@ https://www.seriouseats.com/recipes/2010/02/the-best-buffalo-wings-oven-fried-wi
 
 ### Instructions
 1. Toss wings with baking soda and salt. Place on wire rack and put in fridge for 0-24 hours (at least 8 is best).
-2. Bake at **450** for **20 minutes**, flip wings, bake for another **20-30 minutes**.
-3. Whisk butter and hot sauce over medium heat.
-4. Toss wings in sauce immediately after removing from the oven.
+2. Set oven to **450**, bake for **20 minutes**.
+3. Flip wings, set timer for **15 minutes**.
+4. Whisk butter and hot sauce over medium heat.
+5. Toss wings in sauce immediately after removing from oven.
 
 ### Notes
 * This recipe will likely produce smoke.
