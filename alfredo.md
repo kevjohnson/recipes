@@ -32,3 +32,6 @@ https://www.seriouseats.com/recipes/2014/09/lighter-fettuccine-alfredo-recipe.ht
 3. Slowly add hot pasta water to cheese mixture, whisking constantly.
 4. Add mixture to pasta pot, bring to boil over medium-high heat, stirring constantly.
 5. Add pasta and butter to pot, mix until ready.
+
+### Notes
+* Don't forget to add salt and pepper at the end you dumbass
