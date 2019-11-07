@@ -17,3 +17,8 @@
 4. Increase to medium-high, cook tomato paste for **2 minutes**.
 5. Add roasted tomato mixture and broth, simmer for **20 minutes**.
 6. Blend.
+
+### Notes
+
+* It's literally just tomato sauce with chicken broth.
+* Consider going light on the onion, or maybe don't blend it with the onion.  Too much blended onion creates a grainy texture.
