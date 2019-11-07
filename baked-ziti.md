@@ -31,3 +31,8 @@
 12. Bake 15-20 minutes
 13. Broil about 4 minutes
 14. Let rest 5 minutes before serving
+
+### Notes
+
+* Nobody ever has pancetta so just use bacon like a proper American. Try to find a mild version since smoky bacon can overpower the dish.
+* The dish is great, but it's even better with a pound or two of Italian sausage.
