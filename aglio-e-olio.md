@@ -12,3 +12,4 @@
 
 ### Notes
 * Butter, parmesan, and parsley make great additions at the end.
+* Add a bit of dijon mustard to help emulsify the sauce.  Don't tell any Italians.
