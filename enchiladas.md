@@ -1,14 +1,9 @@
 ## Ingredients
 
-* olive oil
+* olive oil, cumin, coriander, paprika, pepper, salt
 * 4 chicken thighs (boneless skinless is easiest)
 * 2 large white onions
 * white wine (optional)
-* cumin
-* coriander
-* paprika
-* pepper
-* salt
 * 4 jalapeños (or other green chiles)
 * 1.5 pounds tomatillos
 * 1 lime
